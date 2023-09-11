@@ -1,7 +1,7 @@
 ### Olá, eu sou o Vinnicius Oliveira Rodrigues👋
 <br>
 
-## Estes são os desafios do processo seletivo da Modal
+## Estes são os desafios do processo seletivo da ModalGR
 
 
 
